@@ -5,7 +5,7 @@
 </h5>
 <p align="center">
   <img src="https://64.media.tumblr.com/0934ef9c4b7eb6105363c5d72c2490de/64058464a572fd47-59/s2048x3072/5acedf9134542fedb7dc9f644159a198b8e3d42b.pnj" width=400> <br>
-𓂃◞ " <i>If there's ${\textsf{\color{purple}nothing}}$ in the <b>darkness</b>, then why do you lie ${\textsf{\color{purple}awake}}$?</i> 𓂅𝄞 🔮  
+🔮 " <i>If there's ${\textsf{\color{purple}nothing}}$ in the <b>darkness</b>, then why do you lie ${\textsf{\color{purple}awake}}$?</i> ◟♬   
   <p align="center">
 <p align="center">
 <img src="https://64.media.tumblr.com/a9ef6a4d66a0ac92b283cf61a356b5b1/b097cdb5fd34913c-97/s400x600/d4a44005ee123162117000beb9cc38f11e3a1394.gifv" width=400>
