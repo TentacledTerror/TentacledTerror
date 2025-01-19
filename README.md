@@ -36,6 +36,6 @@
 <br> ⨳ I'm <b>often</b> found with <b>friends</b> or ${\textsf{\color{purple}family}}$. I <b>sign off</b> with ${\textsf{\color{purple}-PC.}}$◟‿♡
   
 <p align="center">
-ᘛ ㅤㅤㅤ ${\textsf{\color{purple}━━╋━—}}$ ㅤㅤ†ㅤㅤ——━𒈔———ㅤㅤ†ㅤㅤ ${\textsf{\color{purple}━━╋━—}}$ㅤㅤㅤ ᘚ
+ᘛ ㅤㅤㅤ ${\textsf{\color{purple}━━╋━—}}$ ㅤ†ㅤ——━𒈔———ㅤ†ㅤ ${\textsf{\color{purple}━━╋━—}}$ㅤㅤㅤ ᘚ
 <p align="center">
 <img src="https://64.media.tumblr.com/f08f764dc32417f51c583c08a1db9256/f4778f44a9ee3a59-19/s2048x3072/58c903892ffff02cdcc797ba0bbc678e18a9b9dd.pnj">
