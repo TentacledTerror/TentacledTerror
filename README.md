@@ -26,10 +26,10 @@
 
 <p align="center">
 <img src="https://64.media.tumblr.com/d498f1f70d3e71827a5a8e7f8de66a32/bb015a62ab4fe380-96/s75x75_c1/b5a53ff49a6517746afdf968508c38791f29cdce.gifv"> ◟ <i>Additional notes;</i>  ㅤ
-<br> ${\textsf{\color{purple}—✛—-—-—✛—}}$
+<br> ${\textsf{\color{purple}—✛—-—-—✛—}}$ 
 <br> ⨳ I will <b>not</b> give out our ${\textsf{\color{purple}collective information.}}$ <b>Friends</b> however, are free to ask.
-<br> We also do <b>not</b> call ourselves a system, just ${\textsf{\color{purple}Plural}}$, and use I/me. 𓂃 ${\textsf{\color{purple}⤶}}$
-<br> ⨳ I am <b>proudly</b> ${\textsf{\color{purple}proship/ fic}}$, If you do not like that <b>Ignore/ block</b> me.
+<br> ⨳ We also do <b>not</b> call ourselves a system, just ${\textsf{\color{purple}Plural}}$, and use I/me. 𓂃 ${\textsf{\color{purple}⤶}}$
+<br> ⨳ I am <b>proudly</b> ${\textsf{\color{purple}anti-harassment}}$, If you do not like that <b>Ignore/ block</b> me.
 <br> ⨳ If you are <b>under</b> ${\textsf{\color{purple}17}}$, I don't mind talking but I don't want to get very <b>close</b> to you.
 <br> This ${\textsf{\color{purple}doesn't}}$ <b>apply</b> to friends. 𓂃 ${\textsf{\color{purple}⤶}}$
 <br> ⨳ I typically talk with ${\textsf{\color{purple}correct}}$ <b>grammar</b>, it's often misread as <b>angry</b>, it's just how I text.
