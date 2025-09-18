@@ -28,10 +28,9 @@
 <br> ${\textsf{\color{purple}—✛—-—-—✛—}}$
 <br> ⨳ If you are <b>under</b> ${\textsf{\color{purple}17}}$, I don't mind talking but I don't want to get very <b>close</b> to you.
 <br> This ${\textsf{\color{purple}doesn't}}$ <b>apply</b> to friends. 𓂃 ${\textsf{\color{purple}⤶}}$
-<br> ⨳ I talk with ${\textsf{\color{purple}correct}}$ <b>grammar</b>, it's often misread as <b>angry</b>, it's just how I text.
+<br> ⨳ I typically talk with ${\textsf{\color{purple}correct}}$ <b>grammar</b>, it's often misread as <b>angry</b>, it's just how I text.
 <br> ⨳ I get extremely <b>lost</b> in my ${\textsf{\color{purple}work}}$, and forget to check ${\textsf{\color{purple}whispers/}}$ <b>dms</b>, I'm not ignoring you.
 <br> ⨳ I have lower <b>empathy</b> and find it ${\textsf{\color{purple}difficult}}$ to <b>relate</b> to or <b>understand</b> others.
-<br> ⨳ I ${\textsf{\color{purple}drink}}$ and do <b>mention</b> it from time to time, if that's ${\textsf{\color{purple}uncomfortable}}$, lmk.
 <br> ⨳ I spend <b>most</b> of my time ${\textsf{\color{purple}working}}$, I tend to be rather <b>busy</b> and often am not on tab.
 <br> ⨳ I'm <b>often</b> found with <b>friends</b> or ${\textsf{\color{purple}family}}$. I <b>sign off</b> with ${\textsf{\color{purple}-PC.}}$◟‿♡
   
