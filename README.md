@@ -36,7 +36,7 @@
 <br> ⨳ I get extremely <b>lost</b> in my ${\textsf{\color{purple}work}}$, and forget to check ${\textsf{\color{purple}whispers/}}$ <b>dms</b>, I'm not ignoring you.
 <br> ⨳ I have lower <b>empathy</b> and find it ${\textsf{\color{purple}difficult}}$ to <b>relate</b> to or <b>understand</b> others.
 <br> ⨳ I spend <b>most</b> of my time ${\textsf{\color{purple}working}}$, I tend to be rather <b>busy</b> and often am not on tab.
-<br> ⨳ I'm <b>often</b> found with <b>friends</b> or ${\textsf{\color{purple}family}}$. I <b>sign off</b> with ${\textsf{\color{purple}-PC.}}$◟‿♡
+<br> ⨳ I'm <b>often</b> found with <b>friends</b> or ${\textsf{\color{purple}family}}$. I <b>proxy</b> with ${\textsf{\color{purple}a skull.}}$◟‿♡
   
 <p align="center">
 ᘛ ㅤㅤㅤ ${\textsf{\color{purple}━━╋━—}}$ ㅤ†ㅤ——━𒈔———ㅤ†ㅤ ${\textsf{\color{purple}━━╋━—}}$ㅤㅤㅤ ᘚ
