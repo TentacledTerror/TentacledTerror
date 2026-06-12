@@ -14,7 +14,7 @@
 <br> <img src="https://64.media.tumblr.com/0934ef9c4b7eb6105363c5d72c2490de/64058464a572fd47-59/s2048x3072/5acedf9134542fedb7dc9f644159a198b8e3d42b.pnj" width=400>
 <p align="center">
  <b>Percy</b> , ${\textsf{\color{purple}Perceus}}$ ╱ <i>Perci<i> ⸝⸝ 𓂃 ${\textsf{\color{purple}20}}$-23 ᛝ　 ${\textsf{\color{purple}she}}$ / <b>he. </b> <img src="https://64.media.tumblr.com/95d8810da3abe4b0b0fb97a7103b806a/8f2c33dff79370d2-23/s75x75_c1/4111623d02e7e0bc6b1195461ec64366b3465200.gifv" width=20>
-<br> 𖧵ֹ໋݊〞 <i>Eldrich<i> ${\textsf{\color{purple}horror}}$ of a girl ﹕ ${\textsf{\color{purple}Bigender}}$ ˎ ♢ ˏ <b>au</b> + ${\textsf{\color{purple}npd}}$ ﹒ <b>INTP-A.</b> 𓂃
+<br> 𖧵ֹ໋݊〞 <i>Eldrich<i> ${\textsf{\color{purple}horror}}$ of a girl ﹕ ${\textsf{\color{purple}Bigender}}$ ˎ ♢ ˏ <b>au</b> + ${\textsf{\color{purple}npd}}$ ﹒ <b>INTP.</b> 𓂃
 <br> <img src="https://64.media.tumblr.com/4346a816333c541935a4f5b6b6f768d7/ac118279175411f0-02/s1280x1920/b278d44c8b4197f2e33063eb5263ab5fcecd37d6.pnj"width=200>
 <br> <img src="https://64.media.tumblr.com/b8429efce65e32735a0c4d3f684e2ef1/6e41ac82941fcef1-2a/s75x75_c1/94fd070e0a12a034a5b5d5fe220658e89149f76e.gifv"> ℰ（  ${\textsf{\color{purple}Blunt}}$, not <i>disinterested.</i> ${\textsf{\color{purple}c+h}}$ <b>♡</b>. —━╋
 
