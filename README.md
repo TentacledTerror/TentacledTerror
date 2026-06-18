@@ -27,7 +27,7 @@
 <p align="center">
 <img src="https://64.media.tumblr.com/d498f1f70d3e71827a5a8e7f8de66a32/bb015a62ab4fe380-96/s75x75_c1/b5a53ff49a6517746afdf968508c38791f29cdce.gifv"> ◟ <i>Additional notes;</i>  ㅤ
 <br> ${\textsf{\color{purple}—✛—-—-—✛—}}$ 
-<br> ⨳ I will <b>not</b> give out our ${\textsf{\color{purple}collective information.}}$ <b>Friends</b> however, are free to ask.
+<br> ⨳ I will <b>not</b> give out our ${\textsf{\color{purple}collective information.}}$ <b>Close friends</b> are free to ask.
 <br> ⨳ We also do <b>not</b> call ourselves a system, just ${\textsf{\color{purple}Plural}}$, and use I/me. 𓂃 ${\textsf{\color{purple}⤶}}$
 <br> ⨳ I am <b>proudly</b> ${\textsf{\color{purple}anti-harassment}}$, If you do not like that <b>Ignore/ block</b> me.
 <br> ⨳ If you are <b>under</b> ${\textsf{\color{purple}17}}$, I don't mind talking but I don't want to get very <b>close</b> to you.
@@ -36,7 +36,7 @@
 <br> ⨳ I get extremely <b>lost</b> in my ${\textsf{\color{purple}work}}$, and forget to check ${\textsf{\color{purple}whispers/}}$ <b>dms</b>, I'm not ignoring you.
 <br> ⨳ I have lower <b>empathy</b> and find it ${\textsf{\color{purple}difficult}}$ to <b>relate</b> to or <b>understand</b> others.
 <br> ⨳ I spend <b>most</b> of my time ${\textsf{\color{purple}working}}$, I tend to be rather <b>busy</b> and often am not on tab.
-<br> ⨳ I'm <b>often</b> found with <b>friends</b> or ${\textsf{\color{purple}family}}$. I <b>proxy</b> with ${\textsf{\color{purple}a skull.}}$◟‿♡
+<br> ⨳ I'm <b>often</b> found with <b>friends</b> or ${\textsf{\color{purple}family}}$. My <b>skins</b> will have ${\textsf{\color{purple}'fict'}}$  on them.◟‿♡
   
 <p align="center">
 ᘛ ㅤㅤㅤ ${\textsf{\color{purple}━━╋━—}}$ ㅤ†ㅤ——━𒈔———ㅤ†ㅤ ${\textsf{\color{purple}━━╋━—}}$ㅤㅤㅤ ᘚ
